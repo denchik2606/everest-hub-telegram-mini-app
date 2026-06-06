@@ -1,0 +1,1 @@
+[Полный текст из файла TELEGRAM_MINI_APP_TECHNICAL_GUIDE.md]

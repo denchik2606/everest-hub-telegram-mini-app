@@ -1,0 +1,1 @@
+[Полный текст из файла PROMPT_Telegram_Mini_App_Full.md]

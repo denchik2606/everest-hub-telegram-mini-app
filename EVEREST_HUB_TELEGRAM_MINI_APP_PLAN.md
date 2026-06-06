@@ -1,0 +1,1 @@
+[Полный текст из файла EVEREST_HUB_TELEGRAM_MINI_APP_PLAN.md]
